@@ -1,1 +1,0 @@
-# AlexeyKhodykin.github.io
